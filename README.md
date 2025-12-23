@@ -5,6 +5,7 @@ Most first-time founders think building an Uber clone is simple: launch the app,
 A sustainable **Uber clone app** is not built on a single income source. It’s built on **layered revenue streams** that grow as usage increases—without damaging rider trust or driver retention.
 
 Below are **seven revenue streams** every serious Uber clone founder should understand before going to market.
+<img width="1024" height="1024" alt="Gemini_Generated_Image_fopydmfopydmfopy" src="https://github.com/user-attachments/assets/00b2850f-a67c-4eff-83ac-c560b6f788af" />
 
 ---
 
